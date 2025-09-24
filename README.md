@@ -10,5 +10,5 @@ __**Cześć 🧤**, Jestem Filippo zajmuje sie programowaniem w javie i w java s
   - Customowe itemy,  
   - Działki,  
   - Ogłoszenia,  
-**I wiele wiele wiecej  
+**I wiele wiele wiecej**
 
