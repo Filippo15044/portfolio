@@ -12,3 +12,4 @@ __**Cześć 🧤**, Jestem Filippo zajmuje sie programowaniem w javie i w java s
   - Ogłoszenia,  
 **I wiele wiele wiecej**
 
+**dalem na moim repozytorium tylko 2 pluginy zebyscie nie ukradli ale mozna kupic gotowe pluginy 🙃 
